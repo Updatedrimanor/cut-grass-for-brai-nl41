@@ -1,4 +1,4 @@
-#  
+#  cut grass for brainroots smart Script is the best cut grass for brainroots Script, featuring auto-farm and instant win. Safe and powerful for all
 
 
 
